@@ -1,6 +1,6 @@
-### YOO guys 👋
+## YOO guys 👋
 
-I own & code at @Avexzi
+### I own & code at [@Avexzi](https://github.com/Avexzi)
 
   - 💸 I'm currently making money & trying to grow with coding :)
 
