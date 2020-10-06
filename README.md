@@ -2,7 +2,7 @@
 
 ### I own & code at [@Avexzi](https://github.com/Avexzi)
 
-  - 💸 I'm currently making money & trying to grow with coding :)
+  - 💸 I'm currently coding private stuff.
 
   - Working for myself and will continue to :+1:
   
