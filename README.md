@@ -1,13 +1,8 @@
 ## YOO guys 👋
 
-### I own & code at [@Avexzi](https://github.com/Avexzi)
-
-  - 💸 I'm currently coding private stuff.
-
-  - Working for myself and will continue to :+1:
-  
-  
-  
+3 Years Coder
+I code stuff for myself
+and 🌿 pusha koza mn rqdko
   
   
   *Not that active on github anymore ;/*
