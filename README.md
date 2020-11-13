@@ -1,10 +1,10 @@
 ## YOO guys 👋
 
-3 Years Coder
+3 Years of coding experience
 
 I code stuff for myself
 
-and 🌿 pusha koza mn rqdko
+and i do illegal stuff ^_^
   
   
   *Not that active on github anymore ;/*
